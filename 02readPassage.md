@@ -1,0 +1,1 @@
+**Read the passage** itself in several different translations. (Obviously, read the Hebrew/Aramaic or Greek if you can; but this guide presupposes that you read in translation.) Read the passage aloud. What happens for you when you read it? What questions do the several translations raise for you?

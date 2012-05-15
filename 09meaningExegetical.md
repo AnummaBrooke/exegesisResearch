@@ -1,0 +1,1 @@
+**State clearly and unambiguously** the possible interpretations of the text for the book in which it appears. *What is the word of this text to the community for which it was written?* This should follow logically upon, and be clearly derived from, the discoveries you have made in the previous steps. How does it do so? Be explicit.

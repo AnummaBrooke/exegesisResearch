@@ -1,0 +1,5 @@
+**Determine the form (genre)** of the passage. What is this genre’s characteristic form and content? What is its characteristic historical setting and function? How do such considerations affect the interpretation of this passage? 
+
+* If the passage is a narrative, what kind of narrative is it? With whom does the author want the reader to identify? How does the identification affect the interpretation of the passage? (For your part, try to identify, not with any character, but with the author: those are the shoes you're trying to walk in.) What kinds of choices has the author made about how the story is presented? What happens to the reader in the process of reading this text?
+* If the passage is not narrative, what genre(s) is it, and what indicators suggest this?
+* In any case, what is the typical form and content of the apparent genre? In what particulars does this piece conform to or resist the expectations of the genre? What is the likely historical, institutional "home" of the genre, and what function did the genre have in that social-historical location? How does this piece appear to function as an exemplar of its genre?

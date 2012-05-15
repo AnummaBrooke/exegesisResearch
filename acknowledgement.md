@@ -1,0 +1,1 @@
+*This guide to researching an exegesis project is adapted—and adapted, and adapted again—from that offered by Ronald Allen, Professor of New Testament, at Christian Theological Seminary, Indianapolis IN (US), in 1996.*

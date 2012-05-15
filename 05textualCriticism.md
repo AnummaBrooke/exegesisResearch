@@ -1,0 +1,1 @@
+**Check for textual-critical problems** (variants among the textual witnesses), and for words/phrases with unclear meaning, using the translation footnotes and commentaries. If any seem to affect the sense of the passage, investigate them. Remember that textual-critical problems can often be solved only in light of the exegesis as a whole.
