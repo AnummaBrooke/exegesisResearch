@@ -8,7 +8,7 @@ Consider briefly the following: To create a text, in this ancient world, was an 
 
 Against this background, consider the historical period. Again, concentric circles may help: there is the post-exilic period; within that, there is the period after Alexander's conquest; within that, there is the period of the rule of Antiochus IV Epiphanes; within that, there is the period beginning with his organized suppression of Judaism in Jerusalem. Read what you can on this. Resources include:
 
-* Stanley;
+* Textbook;
 * Relevant entries in your one-volume Bible dictionary;
 * Other traditionally-published resources in your local libraries, your church, and your home;
 * Responsibly-assessed internet resources like Wikipedia or the results of Google searches.

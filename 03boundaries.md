@@ -2,7 +2,7 @@
 
 Genre: For example, a narrative may be divisible into episodes; those episodes may be divisible into their own beginnings, middles, and ends. Or, a legal code may be divisible into sections of like laws (or not); those sections, divisible into laws; a law, divisible into statements like "If such-and-so happens" and "Then you shall respond thusly."
 
-Circles: It may be helpful to think in terms of concentric circles. For example, a dialogue, within an episode, within a narrative, within a cycle of narratives, within a biblical book. Or, an "If this" statement, within a law, within a series of like laws, within a legal code, within a biblical book. 
+Circles: It may be helpful to think in terms of concentric circles. For example, a dialogue, within an episode, within a narrative, within a cycle of narratives, within a biblical book. Or, an "If this happens" statement, within a law, within a series of like laws, within a legal code, within a biblical book. 
 
 Post in the forum according to the instructions given there.
 

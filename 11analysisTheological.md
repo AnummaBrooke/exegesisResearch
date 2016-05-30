@@ -2,8 +2,8 @@
 
 (From Williamson and Allen, _A Credible and Timely Word_ [St. Louis: Chalice, 1991]:)
 
-* In your view, are these claims appropriate to your understanding of God's merciful call and ethical claim?
-* In your view, are these claims credible? That is, are these claims:
-    + coherent to other biblical witness? How or how not? What if they are not?
-    + intelligible in the light of the way the world is understood today? How or how not? What if they are not?
-    + moral? Why or why not? What if they are not?
+* In your view, are these claims _appropriate_ to your understanding of God's merciful call and ethical claim?
+* In your view, are these claims _credible?_ That is, are these claims:
+    + _coherent_ to other biblical witness? How or how not? What if they are not?
+    + _intelligible_ in the light of the way the world is understood today? How or how not? What if they are not?
+    + _moral?_ Why or why not? What if they are not?

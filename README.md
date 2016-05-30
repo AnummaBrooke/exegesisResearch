@@ -6,11 +6,11 @@ exegesisResearch
 
 *This guide to researching an exegesis project is adapted—and adapted, and adapted again—from that offered by Ronald Allen, Professor of New Testament, at Christian Theological Seminary, Indianapolis IN (US), in 1996.*
 
-***
+* * *
 
 # Guide to Researching an Exegesis Project
 
-***
+* * *
 
 These are the steps by which I break down exegetical research for my Masters students in biblical studies. By "exegesis," I mean "determining the likely meaning of a text in its original social-historical context." 
 
